@@ -1,2 +1,5 @@
 ### Olá, Eu sou o Eduardo Reis!🤘
-https://br.pinterest.com/pin/595038169503174945/visual-search/?x=16&y=16&w=508&h=228&cropSource=6
+
+
+
+![CANNONBREED](https://github.com/Sevennx/modeloTeste/assets/112592341/e0a03ffb-3e35-4564-b02b-c3e1d151e6be)
